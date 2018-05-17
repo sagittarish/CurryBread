@@ -1,2 +1,2 @@
-You can add articles if you want
-No commercial use
+/You can add articles if you want
+/No commercial use
